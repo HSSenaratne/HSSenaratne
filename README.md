@@ -1,5 +1,5 @@
 ### Hi there 👋
 
 - I am HS Senaratne ^-^
-- Undergraduate at SLIIT
+- Fresh Graduate at SLIIT
 
