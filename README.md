@@ -1,5 +1,5 @@
 ### Hi there 👋
 
 - I am HS Senaratne ^-^
-- Fresh Graduate at SLIIT
+- Data Science Graduate of SLIIT, Faculty of Computing
 
